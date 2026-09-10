@@ -1,0 +1,1 @@
+# Qtmind-Full-Version
